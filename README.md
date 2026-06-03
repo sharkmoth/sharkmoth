@@ -8,7 +8,9 @@
 <h1>.𖥔 ݁ ˖ ✦  ‧₊˚ ⋅ℌ𝔢𝔶𝔞, 𝔴𝔢𝔩𝔠𝔬𝔪𝔢 𝔱𝔬 𝔪𝔶 𝔭𝔞𝔤𝔢  </h1>
 
 
-<img width="300" height="157" alt="image_2026-03-29_111643471" src="https://github.com/user-attachments/assets/6568b396-5b8f-43a7-b03e-b99bda02a539" />
+<img width="350" height="320" alt="b5e7ce3ac067297808493d53f4ea63ae" src="https://github.com/user-attachments/assets/20a0c80d-e7e5-46ff-b82a-3d04753d9d64" />
+
+
 
 
 
