@@ -16,7 +16,7 @@
 
 ![SHark 1 (1)](https://github.com/user-attachments/assets/ca3e606d-05fe-4322-92f0-adf9f4d99081)
 
-heya! i go by a few names, but i mainly use *ash*,*shaw* or mirror whatever character I'm on as at the moment.
+heya! i go by a few names, but i mainly use *ash*, *shaw* or mirror whatever character I'm on as at the moment.
 
 <h3>˚₊‧꒰ა BFYI ໒꒱ ‧₊˚</h3>
 
